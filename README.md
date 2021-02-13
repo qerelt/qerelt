@@ -1,4 +1,4 @@
-👩‍🚀 Hi, I’m Gereltuya from Mongolia
+👩‍🚀 Hi, I’m Gereltuya from Mongolia 🇲🇳
 
 
 🔥 I’m passionate about remote-working, machine learning, maker culture and blogging
